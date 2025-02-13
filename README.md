@@ -1,4 +1,4 @@
 ## Members:
-Alparo, Christian Lorrence__
-Cuadra, Blenchie Jean__
+Alparo, Christian Lorrence\
+Cuadra, Blenchie Jean\
 Serdan, Christine Mae
